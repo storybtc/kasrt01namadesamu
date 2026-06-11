@@ -1,1 +1,0 @@
-# kasrt01namadesamu
